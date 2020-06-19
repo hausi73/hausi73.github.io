@@ -1,1 +1,2 @@
 # Luke Skywalker - Ein warer Held kämpft sich bis zum Schluss durch
+Luke Skywalker war der Sohn von Senatorin Padmé Amidala und Anakin Skywalker. Er war der Zwillingsbruder von Prinzessin Leia Organa. Beide wurden nach der Geburt getrennt aufgezogen, damit ihr Vater, der zu dieser Zeit bereits der dunkle Sith-Lord Darth Vader war, nichts von ihnen erfahren konnte und sie später nicht suchen würde. Vader wusste zunächst nicht, dass Padmé Amidala ihre Kinder doch noch zur Welt gebracht hatte, bevor sie starb. Dass es sogar Zwillinge waren, war ihm gänzlich unbekannt.
