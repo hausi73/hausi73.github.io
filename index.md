@@ -11,3 +11,5 @@ Luke Skywalker war der Sohn von Senatorin Padmé Amidala und Anakin Skywalker. E
   * Die Zwillinge wurden nach der Geburt getrennt aufgezogen
   * Luke wurde von seinem Onkel Owen Lars und dessen Frau Beru auf dem Planeten Tatooine aufgezogen
   * In dieser Zeit erwarb er vor allem die Fähigkeiten, in der Wüste zu überleben und Droiden zu reparieren
+
+> Sich der Angst zu stellen, das ist das Schicksal eines Jedi. Dein Schicksal. - Gefunden auf: https://www.myzitate.de/luke-skywalker/
