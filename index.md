@@ -13,3 +13,5 @@ Luke Skywalker war der Sohn von Senatorin Padmé Amidala und Anakin Skywalker. E
   * In dieser Zeit erwarb er vor allem die Fähigkeiten, in der Wüste zu überleben und Droiden zu reparieren
 
 > Sich der Angst zu stellen, das ist das Schicksal eines Jedi. Dein Schicksal. - Gefunden auf: https://www.myzitate.de/luke-skywalker/
+
+<img src="https://geekculture.co/wp-content/uploads/2020/05/mark-hamill-star-wars-luke-skywalker-1.jpg"/>
